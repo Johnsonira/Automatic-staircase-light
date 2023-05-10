@@ -1,0 +1,1 @@
+# Automatic-staircase-light
